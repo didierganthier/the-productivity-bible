@@ -1,4 +1,4 @@
-# the-productivity-bible
+# The Productivity Bible
 How to be productive and get things done
 
 # Weekly Schedule
