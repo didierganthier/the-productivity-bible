@@ -1,5 +1,5 @@
 # The Productivity Bible
-How to be productive and get things done
+How to be productive and get things done at the right time.
 
 # Weekly Schedule
 
